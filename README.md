@@ -23,8 +23,8 @@ Passionate about building modern mobile applications, integrating artificial int
 ---
 
 ### 🌐 Connect & Check My Work:
-* 💬 **Telegram:** [https://t.me/sarvex_fx]
-* 📧 **Email:** [sarvarbeksalimov04@gmail.com]
+* 💬 **Telegram:** [Telegram channel](https://t.me/sarvex_fx)
+* 📧 **Email:** [My Email](sarvarbeksalimov04@gmail.com)
 
 ---
 *“The best way to predict the future is to create it.”
